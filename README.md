@@ -1,1 +1,1 @@
-How much does the 3rd Line of an NHL team contribute to playoff success? What notable and different assets does this line bring that a 1st Line does not? What factors of a Stanley Cup winning 3rd Line seperate it from a fellow contending playoff team's ?
+How much does the 3rd Line of an NHL team contribute to playoff success? What notable and different assets does this line bring that a 1st Line does not? What factors of a Stanley Cup winning 3rd Line separate it from a fellow contending playoff teams ?
